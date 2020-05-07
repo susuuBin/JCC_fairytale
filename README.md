@@ -1,4 +1,4 @@
-# 동화 속으로 :cherry_blossom:
+# :closed_book: 동화 속으로
 2019 IT show 전시작  
 
 ## 01. 스토리 설명
